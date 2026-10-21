@@ -39,7 +39,8 @@ Currently Learning
 
 Connect With Me
 
-- LinkedIn: linkedin.com/in/sahjanand-modanwal-013448439
+- LinkedIn:
+- linkedin.com/in/sahjanand-modanwal-013448439
 
 ---
 
